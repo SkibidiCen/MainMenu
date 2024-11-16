@@ -1,5 +1,5 @@
 don't skid for daddy? 🙏😞🤧
 
-also why are you here 💔
+40 games.
 
 https://discord.com/invite/45m5XdFgGS
