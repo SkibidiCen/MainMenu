@@ -1,5 +1,5 @@
 don't skid for daddy? 🙏😞🤧
 
-40 games.
+42 games
 
 https://discord.com/invite/45m5XdFgGS
